@@ -3,7 +3,7 @@
 **Python Full Stack Developer (Fresher)** · Hyderabad, India  
 🎯 Seeking: Python Developer | Full Stack Developer | Junior GenAI / Agentic AI
 
-📧 saisidhu558@gmail.com · 🔗 [github.com/saisidhu123](https://github.com/saisidhu123)
+📧 [saisidhu558@gmail.com](mailto:saisidhu558@gmail.com) · 🔗 [Resume projects below]
 
 ---
 
